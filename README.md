@@ -127,4 +127,4 @@ High-frequency customers drive long-term profitability.
 Retention significantly impacts overall revenue growth.
 Seasonal revenue peaks suggest promotional opportunities.
 
-# Author: Dorothy Mary Waithira Kamau
+Author: Dorothy Mary Waithira Kamau
